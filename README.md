@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋, call me Prince or McCrony
 
 <!--
 **McCrony/McCrony** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
